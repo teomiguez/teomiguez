@@ -6,7 +6,7 @@ Me gusta programar, surfear y ver cursos para seguir aprendiendo sobre el mundo 
 En mi perfil encontrarás la mayoría de mis proyectos que hago en mi tiempo libre.
         
 Si quieres contactarme, puedes enviarme un DM en Instagram @teomiguez o simplemente un correo electrónico.
-              ____________________________________________________________________________________________________________
+_______________________________________________________________________________________________________________________________________
         
 Hi! My name is Teo, I am 20 years old and I am from Mar del Plata.  I am currently a student at the National Technological University -
 Regional Mar del Plata in the career of University Technician in Programming.
